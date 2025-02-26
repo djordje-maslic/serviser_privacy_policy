@@ -1,6 +1,6 @@
 Privacy Policy for Serviser Mobile and Web App
 
-Last Updated: 28 november 2023
+Last Updated: 26 Feb 2025
 
 1. Introduction
 
